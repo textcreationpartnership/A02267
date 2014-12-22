@@ -36,228 +36,248 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-True religion explained and defended against ye archenemies thereof in these times In six bookes. Pu
+
+1. The minde of the frontiſp•••, or title page.
+
+1. A Recapitulation of the chiefe points, according to the ſeverall ſections of each Booke.
+
+1. A Chriſtian prayer for the adverſaries of true Religion.
+
+1. OF THE TRVTH OF Chriſtian Religion.
+
 #####Body#####
 
-1. SECT. I.
+1. The firſt Booke. OF THE TRVNESSE OF Chriſtian Religion.
 
-1. SECT. II.
+    _ SECT. I.
 
-1. SECT. III.
+    _ SECT. II.
 
-1. SECT. IV.
+    _ SECT. III.
 
-1. SECT. V.
+    _ SECT. IV.
 
-1. SECT. VI.
+    _ SECT. V.
 
-1. SECT. VII.
+    _ SECT. VI.
 
-1. SECT. VIII.
+    _ SECT. VII.
 
-1. SECT. IX.
+    _ SECT. VIII.
 
-1. SECT. X.
+    _ SECT. IX.
 
-1. SECT. XI.
+    _ SECT. X.
 
-1. SECT. XII.
+    _ SECT. XI.
 
-1. SECT. XIII.
+    _ SECT. XII.
 
-1. SECT. XIIII.
+    _ SECT. XIII.
 
-1. SECT. XV.
+    _ SECT. XIIII.
 
-1. SECT. XVI.
+    _ SECT. XV.
 
-1. SECT. XVII.
+    _ SECT. XVI.
 
-1. SECT. XVIII.
+    _ SECT. XVII.
 
-1. SECT. XIX.
+    _ SECT. XVIII.
 
-1. SECT. XX.
+    _ SECT. XIX.
 
-1. SECT. XXI.
+    _ SECT. XX.
 
-1. SECT. XXII.
+    _ SECT. XXI.
 
-1. SECT. XXIII.
+    _ SECT. XXII.
 
-1. SECT. XXIIII.
+    _ SECT. XXIII.
 
-1. SECT. XXV.
+    _ SECT. XXIIII.
 
-1. SECT. I.
+    _ SECT. XXV.
 
-1. SECT. II.
+1. The ſecond Booke OF THE TRVNESSE OF Chriſtian Religion.
 
-1. SECT. III.
+    _ SECT. I.
 
-1. SECT. IV.
+    _ SECT. II.
 
-1. SECT. V
+    _ SECT. III.
 
-1. SECT. VI.
+    _ SECT. IV.
 
-1. SECT. VII.
+    _ SECT. V
 
-1. SECT. VIII.
+    _ SECT. VI.
 
-1. SECT. IX.
+    _ SECT. VII.
 
-1. SECT. X.
+    _ SECT. VIII.
 
-1. SECT. XI.
+    _ SECT. IX.
 
-1. SECT. XII.
+    _ SECT. X.
 
-1. SECT. XIII.
+    _ SECT. XI.
 
-1. SECT. XIIII.
+    _ SECT. XII.
 
-1. SECT. XV.
+    _ SECT. XIII.
 
-1. SECT. XVI.
+    _ SECT. XIIII.
 
-1. SECT. XVII.
+    _ SECT. XV.
 
-1. SECT. XVIII.
+    _ SECT. XVI.
 
-1. SECT. XIX.
+    _ SECT. XVII.
 
-1. SECT. XX.
+    _ SECT. XVIII.
 
-1. SECT. XXI.
+    _ SECT. XIX.
 
-1. SECT. XXII.
+    _ SECT. XX.
 
-1. SECT. XXIII.
+    _ SECT. XXI.
 
-1. SECT. XXIIII.
+    _ SECT. XXII.
 
-1. SECT. I.
+    _ SECT. XXIII.
 
-1. SECT. II.
+    _ SECT. XXIIII.
 
-1. SECT. III.
+1. The third Booke OF THE TRVNESSE OF Chriſtian Religion.
 
-1. SECT. IIII.
+    _ SECT. I.
 
-1. SECT. V.
+    _ SECT. II.
 
-1. SECT. VI.
+    _ SECT. III.
 
-1. SECT. VII.
+    _ SECT. IIII.
 
-1. SECT. VIII.
+    _ SECT. V.
 
-1. SECT. IX.
+    _ SECT. VI.
 
-1. SECT. X.
+    _ SECT. VII.
 
-1. SECT. XI.
+    _ SECT. VIII.
 
-1. SECT. XII.
+    _ SECT. IX.
 
-1. SECT. XIII.
+    _ SECT. X.
 
-1. SECT. XIIII.
+    _ SECT. XI.
 
-1. SECT. XV.
+    _ SECT. XII.
 
-1. SECT. XVI.
+    _ SECT. XIII.
 
-1. SECT. I.
+    _ SECT. XIIII.
 
-1. SECT. II.
+    _ SECT. XV.
 
-1. SECT. III.
+    _ SECT. XVI.
 
-1. SECT. IIII.
+1. The fourth Booke OF THE TRVNESSE OF Chriſtian Religion.
 
-1. SECT. V.
+    _ SECT. I.
 
-1. SECT. VI.
+    _ SECT. II.
 
-1. SECT. VII.
+    _ SECT. III.
 
-1. SECT. VIII.
+    _ SECT. IIII.
 
-1. SECT. IX.
+    _ SECT. V.
 
-1. SECT. X.
+    _ SECT. VI.
+
+    _ SECT. VII.
+
+    _ SECT. VIII.
+
+    _ SECT. IX.
+
+    _ SECT. X.
 SECT. XI.Anſwer to the opinion of ſome that thinke the beginning and decay of Religions depend upon 
-1. SECT. XII.
+    _ SECT. XII.
 
-1. SECT. I.
+1. The fifth Booke OF THE TRVNESSE OF Chriſtian Religion.
 
-1. SECT. II.
+    _ SECT. I.
 
-1. SECT. III.
+    _ SECT. II.
 
-1. SECT. IIII.
+    _ SECT. III.
 
-1. SECT. V.
+    _ SECT. IIII.
 
-1. SECT. VI.
+    _ SECT. V.
 
-1. SECT. VII.
+    _ SECT. VI.
 
-1. SECT. VIII.
+    _ SECT. VII.
 
-1. SECT. IX.
+    _ SECT. VIII.
 
-1. SECT. X.
+    _ SECT. IX.
 
-1. SECT. XI.
+    _ SECT. X.
 
-1. SECT. XII.
+    _ SECT. XI.
 
-1. SECT. XIII.
+    _ SECT. XII.
 
-1. SECT. XIIII.
+    _ SECT. XIII.
 
-1. SECT. XV.
+    _ SECT. XIIII.
 
-1. SECT. XVI.
+    _ SECT. XV.
 
-1. SECT. XVII.
+    _ SECT. XVI.
 
-1. SECT. XVIII.
+    _ SECT. XVII.
 
-1. SECT. XIX.
+    _ SECT. XVIII.
 
-1. SECT. XX.
+    _ SECT. XIX.
 
-1. SECT. XXI.
+    _ SECT. XX.
 
-1. SECT. XXII.
+    _ SECT. XXI.
 
-1. SECT. XXIII.
+    _ SECT. XXII.
 
-1. SECT. 1.
+    _ SECT. XXIII.
 
-1. SECT. II.
+1. The ſixth Booke OF THE TRVNESSE OF Chriſtian Religion.
 
-1. SECT. III.
+    _ SECT. 1.
 
-1. SECT. IIII.
+    _ SECT. II.
 
-1. SECT. V.
+    _ SECT. III.
 
-1. SECT. VI.
+    _ SECT. IIII.
 
-1. SECT. VII.
+    _ SECT. V.
 
-1. SECT. VIII.
+    _ SECT. VI.
 
-1. SECT. IX.
+    _ SECT. VII.
 
-1. SECT. X.
+    _ SECT. VIII.
 
-1. SECT. XI.
+    _ SECT. IX.
+
+    _ SECT. X.
+
+    _ SECT. XI.
 
 **Types of content**
 
